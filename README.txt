@@ -1,1 +1,1 @@
-Над проектом работают четыре разработчика: Musaelyan-Arinka
+Над проектом работают четыре разработчика: AlexRoznov47, MiladaKrapivina, Musaelyan-Arinka
